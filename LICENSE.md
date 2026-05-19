@@ -1,4 +1,4 @@
-# 
+# elite JetBrains PyCharm para PC executor é o melhor JetBrains PyCharm para PC executor com histórico de commits e colaboração em equipe. Seguro, confiável e otimizado para máximo
 
 
 
